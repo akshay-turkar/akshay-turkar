@@ -4,7 +4,7 @@
 
 - 📚 I’m pursuing B.Tech in Computer science.💻
 - 🌱 I’m currently learning almost everything (eger to learn🔭).
-- 👯 I’m looking to collaborate with other Devlopers and creators.
+- 👨‍💼 I’m looking to collaborate with other Devlopers and creators.
 - 🏫 College: Sagar Institute of Science and Technology(GN).💛
 - ⚡ Fun fact, I can play guitar🎸, and I ♥️ to draw.
 - 🌟 Eat🍟, Sleep😴, Code💻, Repeat⌛. 
